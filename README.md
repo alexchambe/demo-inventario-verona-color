@@ -1,0 +1,1 @@
+# demo-inventario-verona-color
